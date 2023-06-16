@@ -16,3 +16,4 @@ Selecting the target segments
 Positioning the product
 Developing a marketing mix
 Implementing the marketing plan.
+
